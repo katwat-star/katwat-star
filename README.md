@@ -1,10 +1,12 @@
 ## Hi there i'm s1mplek4tz 👋
 
-s1mplek4tz or Gabs both works for me, i'm 16 from Portugal; 
+s1mplek4tz or Gabs both works for me, I'm 16 from Portugal; 
 
 I'm a tech enthusiast, a beginner graphic designer and a video editor;
 
-Graphic designing was just a side quest and video editing was actually a fun thing that i did for almost 3.5 years;
+Graphic designing was just a side quest and video editing was actually a fun thing that I did for almost 3.5 years;
+
+For editing I used before a Sony Vegas but later I switched for Davinci Resolve because its more easy for me;
 
 Currently my setup is a DELL S2422HG, AJAZZ AK820, Viper V3 Hyperspeed, TONOR Q9;
 
