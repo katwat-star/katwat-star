@@ -13,6 +13,6 @@ Currently my setup is a DELL S2422HG, AJAZZ AK820, Viper V3 Hyperspeed, TONOR Q9
 My Computer specs are Ryzen 5 5600x, RX570 8GB, 16GB of RAM and 700GB of storage;
 
 - ✏️ Currently working on: a gamming channel called s1mplek4tz 🎮;
-- 😭 Failed projects: One channel called Cachemiau 😸;
+- 😭 Failed projects: A channel called Cachemiau 😸;
 - 🌱 Things that would be fun to learn: Make my first guide how to make a computer looking good and fresh ✨;
 - 🤔 How to reach me: Well it can be Discord (User: s1mplek4tz), or instead my socials that are linked on my profile (X and Tiktok)
